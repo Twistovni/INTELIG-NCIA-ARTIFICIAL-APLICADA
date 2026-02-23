@@ -1,0 +1,2 @@
+# INTELIG-NCIA-ARTIFICIAL-APLICADA
+Aula - Pós graduacao
